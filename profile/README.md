@@ -1,6 +1,6 @@
 # Silva 🌱
 
-Welcome to Silva's GitHub repository! We're thrilled to have you here. At Silva, we're all about nature and fostering sustainable growth.
+Welcome to Silva's GitHub repository! We're to see you here. At Silva, we're all about nature and fostering sustainable growth.
 
 ## What We Do
 
